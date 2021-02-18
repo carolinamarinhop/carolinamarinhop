@@ -8,8 +8,6 @@ Graduated in Analysis and Development Systems, Developer with 4+ years of experi
 
 🌎 I'm from Manaus/AM and living in Fortaleza/CE - Brazil
 
-🎮 I like to play video games and my pets pets 🐶🐱🐱
-
 ❤️ I love travelling 🛫🛬
 
 My social links:
