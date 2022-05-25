@@ -7,10 +7,6 @@ Graduated in Analysis and Development Systems, Developer with 4+ years of experi
 ### About Me
 
 🌎 I'm from Manaus/AM and living in Fortaleza/CE - Brazil
-
-❤️ I love travelling 🛫🛬
-
-My social links:
    
 <!--
 **carolinamarinhop/carolinamarinhop** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
