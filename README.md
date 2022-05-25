@@ -1,4 +1,4 @@
-### Hi, my name is Carolina Marinho: 👋
+### Hi, I'm Carolina Marinho: 👋
 
 
 
